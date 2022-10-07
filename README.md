@@ -19,3 +19,7 @@ _Di dunia lain, menjilat grendel pintu merupakan suatu hal yang ilegal._
   <img src="https://github.com/devicons/devicon/blob/master/icons/nodejs/nodejs-original.svg" title="NodeJS" alt="NodeJS" width="40" height="40"/>&nbsp;
   <img src="https://github.com/devicons/devicon/blob/master/icons/php/php-original.svg" title="PHP" alt="PHP" width="40" height="40"/>&nbsp;
 </div>
+
+---
+
+<img src="https://github.com/cat-milk/Anime-Girls-Holding-Programming-Books/blob/master/Javascript/Mai_Sakurajima_Holding_Eloquent_Javascript.png" title="lol" alt="lol"/>
