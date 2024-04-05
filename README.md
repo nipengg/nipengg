@@ -1,6 +1,6 @@
 ### Hello! 🦆
 
-_Sayupkan mataku, Manjakan penatku._
+_Di dunia lain, Menjilat grendel pintu merupakan hal yang ilegal._
 
 [![Linkedin](https://img.shields.io/badge/-neville-blue?style=flat-square&labelColor=gray&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/neville-cornelius/)](https://www.linkedin.com/in/neville-cornelius/)
 [![Instagram](https://img.shields.io/badge/-@nipengg-purple?style=flat-square&labelColor=gray&logo=instagram&logoColor=white&link=https://www.instagram.com/nipengg/)](https://www.instagram.com/nipengg/)
